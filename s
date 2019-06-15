@@ -76,6 +76,7 @@ alligator jam chase pail jail hail sneaky mars jar dishonesty pussy stupid softw
 ----
 shirt tourist employee richard reps clothes pamela kettle meat jimmy remain temperature jill
 johnsons butcher greengrocer absent monday tuesday wednesday thursday firday saturday sunday spend 
+lantern
 
 
 
