@@ -70,6 +70,10 @@ strange
 italian
 
 
+----
+alligator jam chase pail jail hail sneaky mars jar dishonesty pussy
+
+
 
 
 
