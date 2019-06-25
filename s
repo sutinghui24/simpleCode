@@ -78,6 +78,32 @@ shirt tourist employee richard reps clothes pamela kettle meat jimmy remain temp
 johnsons butcher greengrocer absent monday tuesday wednesday thursday firday saturday sunday spend 
 lantern
 
+------
+installation compatibility un-shimmable compliant available
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
